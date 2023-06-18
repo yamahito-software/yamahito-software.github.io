@@ -1,1 +1,0 @@
-# yamahito-software.github.io
